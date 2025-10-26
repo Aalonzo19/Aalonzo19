@@ -111,8 +111,8 @@ I’m always open to connecting with professionals, mentors, and fellow learners
 If you’d like to collaborate, share insights, or discuss opportunities, feel free to reach out!
 
 📧 **Email:** [antonioalonzo96@gmail.com]  
-💼 **LinkedIn:** [linkedin.com/in/yourprofile](www.linkedin.com/in/antonio-alonzo48)  
-🐙 **GitHub:** [github.com/yourusername](https://github.com/Aalonzo19)
+💼 **LinkedIn:** [www.linkedin.com/in/antonio-alonzo48]  
+🐙 **GitHub:** [https://github.com/Aalonzo19]
 
 ---
 
